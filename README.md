@@ -1,0 +1,1 @@
+Witam w moim Portfolio, jeżeli tu trafiłeś to znaczy, że jesteś zainteresowany mą osobą. Jednakże nie o tym tutaj mowa. Przed tym jak ujrzysz me projekty, uwzględnij iż były to projekty sprzed kilku lat. 
